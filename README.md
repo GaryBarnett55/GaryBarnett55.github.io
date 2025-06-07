@@ -1,1 +1,1 @@
-GaryMattJamesBarnett.github.io
+GaryBarnett.github.io
